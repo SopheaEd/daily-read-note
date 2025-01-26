@@ -28,6 +28,9 @@ pilgrim - a person who makes a journey, often a long and difficult one, to a spe
 pilgrimage - a special journel made by a pilgrim.
 tangled history
 civilisation - the stage of human social and cultural development and organization that is considered most advanced.
+acient land
+highest hills
+layered heritage
 
 
 
