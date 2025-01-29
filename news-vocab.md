@@ -3,7 +3,33 @@ Community and wildlife
 community-run activities
 community-run conservancy - a protected area of land and water where local community plays central role in its manayand conservation
 traditional used and managed
+community-based conservation
+community participation 
+private land
+proliferate - to increase a lot and suddenly in number
+          syn heightene, go up, blaze,  accumulate
+ecosystem
+community conservation model
+... to protect community people's land...
+coexist- to live together at the same place and the same time
+co-founder
 
+doubling up
+harmony- calm inside
+extensive network
+under pressure
+... to put pressure on ...
+indigenous people
+pastoralist
+human rights
+farming, hunting, collecting natural resources
+carbon and biodiversity markets
+national parks
+pay-to-view  national park
+chaos
+conservancy- an organization or a area designated to conserve or protect natural resources.
+increasing pressure on xxx and xxx
+community conservancy approach
 
 ```
 
