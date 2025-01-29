@@ -1,3 +1,12 @@
+Ethnography 
+```
+day-to-day - adj happening everyday as regular part of your job or life.
+immerse yourself into something = become completely involved in something
+
+
+
+```
+
 Community and wildlife 
 ```
 community-run activities
