@@ -1,3 +1,12 @@
+Community and wildlife 
+```
+community-run activities
+community-run conservancy - a protected area of land and water where local community plays central role in its manayand conservation
+traditional used and managed
+
+
+```
+
 words 
 BBC 
 ```
