@@ -2,6 +2,19 @@ Ethnography
 ```
 day-to-day - adj happening everyday as regular part of your job or life.
 immerse yourself into something = become completely involved in something
+thoroughly updated [tho-rali] completely, very much
+digital world
+qualitative inquiry
+fielwork
+interpretive method
+case study
+the study of individual life history
+illuminate - to explain or more clearly something that is difficult.
+ethnology - core of anthropological work
+impirical investigation
+ethnographic fielwork
+anthropological  ethnography
+
 
 
 
