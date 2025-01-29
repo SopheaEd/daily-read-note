@@ -1,6 +1,9 @@
 Community and wildlife 
 ```
 community-run activities
+ originated in community
+ active participated by members
+ community benefit 
 community-run conservancy - a protected area of land and water where local community plays central role in its manayand conservation
 traditional used and managed
 community-based conservation
