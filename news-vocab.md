@@ -1,3 +1,35 @@
+Mangabey 
+```
+in search of something
+turn over the earfh
+surrounding landscape
+devastated - destroyed or ruined
+century-old - hundreds of years old
+... once drinkable...
+administrative chief officer
+to fish
+no longer possible
+There ate no xxx left.
+semi-industrial gold mining
+significant environmental degradation
+take place
+uncomfortable - so different, unable to live together
+sparse - small in number or amount
+gather medical plants
+
+governance issue
+son-in-law
+global battle
+sequester - hidden away or isolate
+deforestation
+
+
+
+```
+
+
+
+
 Ethnography 
 ```
 day-to-day - adj happening everyday as regular part of your job or life.
